@@ -1,6 +1,8 @@
 # 赔钱机场官网地址
 
-最新地址：[赔钱机场.com](https://赔钱.com/#/register?code=LLq8KnlO)
+最新地址1：[赔钱VPN.com](https://dash.pqjc.site/register?code=LLq8KnlO&cover=sfw)
+
+最新地址2：[赔钱机场.com](https://dash.xn--cp3a08l.com/register?code=LLq8KnlO&cover=sfw)
 
 ## 赔钱机场介绍
 
@@ -16,7 +18,7 @@
 
 折扣程度：七折
 
-截止时间：2025.12.31
+截止时间：2026.5.31
 
 ## 赔钱机场价格
 
